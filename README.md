@@ -1,2 +1,2 @@
 # tugaspaknoor
-tempat saya upoad tugas dari pak noor
+tempat saya upload tugas dari pak noor
